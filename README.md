@@ -1,1 +1,2 @@
 # Nuevas-formas-de-financiar-con-6G
+El 6G habilita un nuevo paradigma para creadores digitales. Pagos inmediatos, sin fronteras ni fricciones, permiten el sostenimiento real de comunidades creativas globales. La velocidad y seguridad de esta tecnología revolucionan los modelos de financiamiento, haciendo posible una conexión directa, constante y sin intermediarios entre quienes crean y quienes apoyan.
